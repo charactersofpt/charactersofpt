@@ -99,4 +99,4 @@ First Update : 6th August
 
 [@zandiik](https://github.com/zandiik) is Dottore from Genshin Impact
 
-[@zadoodo67](https://github.com/zadoodo67) is Ze from Minecraft's ARG
+[@Zadoodo67](https://github.com/Zadoodo67) is Ze from Minecraft's ARG
