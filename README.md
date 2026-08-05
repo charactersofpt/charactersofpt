@@ -98,5 +98,3 @@ First Update : 6th August
 [@yaasuhiro](https://github.com/yaasuhiro) is Yasuhiro Hagakure from Danganronpa
 
 [@zandiik](https://github.com/zandiik) is Dottore from Genshin Impact
-
-[@Zadoodo67](https://github.com/Zadoodo67) is Ze from Minecraft's ARG
