@@ -22,6 +22,10 @@ $\tiny{\textsf{This GitHub was inspired by @title-town , @pt-awards and @fans-to
 I will update this every 2-3 days
 
 
+Nominate you or someone !
+
+[⋆˚𖤓˖°ᢉ .✦ ݁˖](https://charactersofpt.atabook.org/)
+
 <details>
 <summary>ʀᴜʟᴇꜱ</summary>
 Please make sure that when you are nominating someone, that the character is not already on the list as if said character is already on the list, they will not be added.
