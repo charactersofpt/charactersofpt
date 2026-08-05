@@ -2,6 +2,8 @@
 
 $\color{#87cefa}.✦ ݁˖\$
 
+<img width="300" height="300" alt="image" src=https://github.com/charactersofpt/charactersofpt/blob/a532b64b9b9a4d68a3d4b657faf41fa1b6b706bd/pngtree-watercolor-floral-illustration-with-pale-blue-flowers-png-image_16515567.png />
+
 ---
 
 hi  ,  hello  welcome  to  Characters  Of  PonyTown  !
