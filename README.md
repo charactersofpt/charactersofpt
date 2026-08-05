@@ -21,7 +21,7 @@ $\tiny{\textsf{This GitHub was inspired by @title-town , @pt-awards and @fans-to
 
 ---
 
-I will update this every 2-3 days
+I will update this every 1-2 days
 
 
 Nominate you or someone !
