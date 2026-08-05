@@ -43,6 +43,8 @@ $\color{#7ACCF1}Characters\$ $\color{#A4E6FF}Of\$ $\color{#E0F7FF}PonyTown!\$
 
 ---
 
+<div align=left>
+
 First Update : 6th August
 
 [@2099s](https://github.com/2099s) is Miguel O'Hara from ATSV
