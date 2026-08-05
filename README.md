@@ -1,16 +1,37 @@
-## Hi there 👋
+<div align=center>
 
-<!--
-**charactersofpt/charactersofpt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$\color{#87cefa}.✦ ݁˖\$
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+hi  ,  hello  welcome  to  Characters  Of  PonyTown  !
+
+Reminder, this is purely just for fun and entertainment for the owner of this account ^-^. This is for only $\color{#87cefa}Characters\$ and nothing more.
+
+---
+
+$\color{#87cefa}˙⋆✮\$
+
+$\tiny{\textsf{This GitHub was inspired by @title-town , @pt-awards and @fans-town!}}$
+
+
+---
+
+I will update this every 2-3 days
+
+
+<details>
+<summary>ʀᴜʟᴇꜱ</summary>
+Please make sure that when you are nominating someone, that the character is not already on the list as if said character is already on the list, they will not be added.
+
+  When nominating, make sure you correctly put the persons, or your own, GitHub name correctly as this will make things easier and prevent the wrong GitHub user being added onto the list.
+
+If I have added someone who is Problematic, let me know [through my ATA, with proof whether its screenshots or a doc], as I wish to keep this a safe space for everyone included. After all, it is for funsies. ᢉ𐭩
+</details>
+
+---
+
+$\color{#7ACCF1}Characters\$ $\color{#A4E6FF}Of\$ $\color{#E0F7FF}PonyTown!\$
+
+---
+
