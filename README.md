@@ -75,8 +75,6 @@ First Update : 6th August
 
 [@jellyfizz](https://github.com/jellyfizz) is Scaramouche from Genshin Impact
 
-[@KingFrostii](https://github.com/KingFrostii) is King Frostii
-
 [@pupfies](https://github.com/pupfies) is Wifies from ARGS
 
 [@peteybenjaminparker](https://github.com/peteybenjaminparker) is Peter Parker
