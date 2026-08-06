@@ -18,6 +18,9 @@ $\color{#87cefa}˙⋆✮\$
 
 $\tiny{\textsf{This GitHub was inspired by @title-town , @pt-awards and @fans-town!}}$
 
+![](https://github.com/charactersofpt/charactersofpt/blob/754eb538aeb8b79aae0080250f6ea0a04bda8627/pony-town-C-o-PT's%20mascot-dance-sit-padded-toy426-4x.gif)
+
+This is our GitHub's mascot! Feel free to C+H if you see it around
 
 ---
 
