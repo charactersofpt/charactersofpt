@@ -12,7 +12,7 @@ hi  ,  hello  welcome  to  Characters  Of  PonyTown  !
 
 READ!!
 
-Hi, profile owner here, I know this account is fairly new, yet I don't wish to continue as life has suddenly got in the way, and I would rather focus on my life rather than this GitHub and I really hope you do all understand. I thought I would have had more freetime to put into this. I am sorry once again and I really did hope I could continue. But this is goodbyes, I will be keeping the page up, but I will no longer update it, I will be taking the ATA down to prevent requests coming through in my mail too.
+Hi, profile owner here, I know this account is fairly new, yet I don't wish to continue as life has suddenly got in the way, and I would rather focus on my life rather than this GitHub and I really hope you do all understand. I thought I would have had more freetime to put into this. I am sorry once again and I really did hope I could continue. But this is goodbye, I will be keeping the page up, but I will no longer update it, I will be taking the ATA down to prevent requests coming through in my mail too.
 
 ~ Z.
 
