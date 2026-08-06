@@ -93,7 +93,7 @@ First Update : 6th August
 
 [@TEARY-EYED](https://github.com/TEARY-EYED) is Asuka Langley from Neon Genesis Evangelion
 
-[@VIN-ILY](https://github.com/VIN-ILY) is Rook Hunt from Twisted Wonderland
+[@VIL-ILY](https://github.com/VIL-ILY) is Rook Hunt from Twisted Wonderland
 
 [@yaasuhiro](https://github.com/yaasuhiro) is Yasuhiro Hagakure from Danganronpa
 
