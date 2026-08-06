@@ -10,7 +10,11 @@ $\color{#87cefa}.✦ ݁˖\$
 
 hi  ,  hello  welcome  to  Characters  Of  PonyTown  !
 
-Reminder, this is purely just for fun and entertainment for the owner of this account ^-^. This is for only $\color{#87cefa}Characters\$ and nothing more.
+READ!!
+
+Hi, profile owner here, I know this account is fairly new, yet I don't wish to continue as life has suddenly got in the way, and I would rather focus on my life rather than this GitHub and I really hope you do all understand. I thought I would have had more freetime to put into this. I am sorry once again and I really did hope I could continue. But this is goodbyes, I will be keeping the page up, but I will no longer update it, I will be taking the ATA down to prevent requests coming through in my mail too.
+
+~ Z.
 
 ---
 
@@ -24,12 +28,7 @@ This is our GitHub's mascot! Feel free to C+H if you see it around
 
 ---
 
-I will update this weekly
-
-
-Nominate you or someone !
-
-[⋆˚𖤓˖°ᢉ .✦ ݁˖](https://charactersofpt.atabook.org/)
+⋆˚𖤓˖°ᢉ .✦ ݁˖
 
 <details>
 <summary>ʀᴜʟᴇꜱ</summary>
@@ -50,7 +49,7 @@ $\color{#7ACCF1}Characters\$ $\color{#A4E6FF}Of\$ $\color{#E0F7FF}PonyTown!\$
 
 <div align=left>
 
-First Update : 6th August 2.0, added more people
+Last Update : 6th August 2.0, added more people
 
 [@2099s](https://github.com/2099s) is Miguel O'Hara from ATSV
 
